@@ -1,1 +1,0 @@
-# Yana-s-project
